@@ -10,7 +10,7 @@ Available on Google Play.
 
 Contact: dugakrab@gmail.com
 
-##Privacy Policy
+## Privacy Policy
 
 This website is used to provide information about THE BOOK OF KNOWLEDGE and support related services.
 
