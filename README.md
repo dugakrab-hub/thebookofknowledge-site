@@ -5,5 +5,8 @@
 Welcome to the official website of THE BOOK OF KNOWLEDGE.
 
 Memory challenges, puzzles and adventure.
+Available on Google Play.
+
+For support and inquiries: dugakrab@gmail.com
 
 Contact: dugakrab@gmail.com
